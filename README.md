@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BrycenGarrett
+- 👀 I’m interested in astronomey, computer sceince, philosophy, videogames, and reading!
+- 🌱 I’m currently in highschool, learning everything from Computer Science to Engineering.
+- 📫 How to reach me: brycengarrett@gmail.com
